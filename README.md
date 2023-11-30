@@ -1,1 +1,1 @@
-I am Clasence Neba from Cameroon. My coding interests are in web and mobile developer. I am also interested in helping people maximize their potentials, mostly in programming, although extending to other fields.
+Software Engineer from Cameroon. Interested in enabling talented and disadvantaged people to achieve their full potential. Into Startup Consulting, DevOps, Agriculture, and Engineering
